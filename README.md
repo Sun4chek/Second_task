@@ -1,2 +1,0 @@
-# Second_task
-DER
